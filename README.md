@@ -46,7 +46,8 @@
 - **Email**：mofan@hibox.hinet.net
 - **電話**：+886 7 235 1536
 - **客服時間**：週一至週五 09:00–18:00
-- **社群**：Facebook・Instagram・Threads（@mofancenter）・LINE 官方帳號
+- **社群**：Facebook・Instagram・Threads（@mofancenter）
+- **LINE 官方帳號**：[@117eugvc](https://line.me/R/ti/p/@117eugvc)
 - **東站商場專屬社群**：Facebook / Instagram（@mofan.east）
 
 ---
